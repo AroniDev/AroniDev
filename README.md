@@ -34,7 +34,7 @@ That experience made me realize how much I enjoy working with technology and sol
 
 ## 📬 Let's connect
 
-- 🔗 [LinkedIn](www.linkedin.com/in/georgia-aroni-4b81a9375)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/georgia-aroni-4b81a9375/)
 - 📧 georgiaarwni@gmail.com
 
 ---
